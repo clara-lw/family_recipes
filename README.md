@@ -1,4 +1,4 @@
-# CL's Family secret recipes
+# CL's Clan's secret recipes
 
 Set of recipes as given by my grandma.
 
